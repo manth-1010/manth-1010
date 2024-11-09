@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-  Haggu | Ek Ghut | Hart broken
+  Haggu | Ek Ghut | Heart broken
 </p>
 
 <div align="center">
