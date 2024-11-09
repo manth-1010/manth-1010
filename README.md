@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-  Technical Trainer | Coder | Tech Enthusiast
+  Haggu | Ek Ghut | Hart broken
 </p>
 
 <div align="center">
